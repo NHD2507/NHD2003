@@ -57,7 +57,7 @@ Mục tiêu của tôi trong tương lai là trở thành một kỹ sư phần 
 
 ### Liên hệ với tôi
 
-Nếu bạn muốn kết nối hoặc có bất kỳ câu hỏi nào, đừng ngần ngại liên hệ với tôi qua email: thanhcong772003@gmail.com.
+Nếu bạn muốn kết nối hoặc có bất kỳ câu hỏi nào, đừng ngần ngại liên hệ với tôi qua email: huudat25072003@gmail.com.
 
 Cảm ơn bạn đã dành thời gian đọc bài viết này. Tôi rất mong muốn được hợp tác và học hỏi từ những người có cùng đam mê!
 
